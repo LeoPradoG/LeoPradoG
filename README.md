@@ -1,7 +1,7 @@
 ## Hi, I'am Leonardo do Prado Gomes👋
 
  - 👨‍💻 Working with Projects, Web Development and Databases
- - 🏥 Working in a Hospital
+ - 🏥 Working in a Ruston Alimentos
  
  <br>
 
